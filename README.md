@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Sobre mim:
 Busco aprimorar meus conhecimentos e desenvolver minha carreira, contribuindo para o sucesso da empresa com uma parceria sólida e produtiva.
 
 
